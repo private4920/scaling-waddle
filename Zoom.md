@@ -14,3 +14,5 @@ Gabriel Seto Pribadi memiliki hak untuk mencabut akses terhadap rekaman Zoom ter
 
 ## Hak Cipta
 Seluruh materi berhak cipta yang ditampilkan dalam rekaman Zoom tersebut digunakan sesuai dengan Pasal 44 ayat (1) huruf (a) Undang-Undang Republik Indonesia Nomor 24 Tahun 2014 Tentang Hak Cipta.
+
+**Dengan mengisi formulir yang secara eksplisit mereferensikan Perjanjian ini, Anda dianggap menyetujui Perjanjian ini.**
